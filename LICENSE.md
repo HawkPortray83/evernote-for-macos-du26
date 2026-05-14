@@ -1,4 +1,4 @@
-#  
+#  Enhance Evernote for macOS with Evernote for macOS best Integration: cloud backup & export to PDF, the #1 integration. Includes cloud backup and export to PDF for a smoother
 
 
 
